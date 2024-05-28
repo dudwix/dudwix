@@ -1,4 +1,4 @@
-## Hi there 👋
+im so funny and beautiful xoxo ## Hi there 👋
 
 <!--
 **dudwix/dudwix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
