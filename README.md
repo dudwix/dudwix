@@ -1,4 +1,4 @@
-im so funny and beautiful xoxo ## Hi there 👋
+im so funny and beautiful xoxo <3
 
 <!--
 **dudwix/dudwix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
